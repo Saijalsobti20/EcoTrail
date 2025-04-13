@@ -1,1 +1,1 @@
-# EcoTrail-AI-
+# EcoTrail-AI
